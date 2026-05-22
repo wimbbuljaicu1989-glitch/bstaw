@@ -1,6 +1,6 @@
 # bstawwe
 d
-gteF
+gteFSD
 asrwwr
 greS
 dwsDS
